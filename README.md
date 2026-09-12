@@ -12,4 +12,4 @@ Endacopia ★
 <br/> ...Or those are the fandom ponies I usually play, anyway. I like many things of course. <br/>
 <hr>
 <h2>And oh, I'll save the world with my procedures!</h2>
-
+pretend there's a gif here. specifically the one that's also in this repo. I couldn't figure out how to get it here.

@@ -1,7 +1,7 @@
 <h2>And oh, what a beautiful creature! </h2>
  Hello! I made this for ponytown purposes but may use it for its intended purpose in the future.
  <br>INFJ 6w5 for those who care 🫶
- <br>
+ <br><br/>
  I don't play this game often *at all*. If I am active, it's because @roseb3rry is active. <br/>
 This is not to say don't talk to me, I love talking to people! I just want it to be known I'm not here much.
 <hr>
